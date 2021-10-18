@@ -41,7 +41,7 @@ Licence 2 Histoire - Sociologie
 #### **2020-2021**
 Université du Havre
 Baccalauréat Scientifique
-#### 2016
+#### **2016**
 **Lycée Saint-Joseph**
 Le Havre
  
